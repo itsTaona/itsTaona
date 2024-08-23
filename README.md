@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @itsTaona
+- student
+- software developer
